@@ -65,7 +65,7 @@ __Heber J. Grant mentor program__, BYU-Idaho
 
 
 `2016-2017`
-__Service Missionary__, South Africa
+__Full Time Missionary__, South Africa
 
 `2015-2016`
 __Full Time Missionary__, Ghana Kumasi Mission
